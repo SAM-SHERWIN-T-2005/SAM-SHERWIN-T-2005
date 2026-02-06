@@ -20,8 +20,8 @@ Hey! I'm a curious and motivated learner from India, diving into web designing, 
 
 ## Contact 📬
 Feel free to reach out on LinkedIn or drop a message here! Always happy to chat and collaborate.                                                                                                   
-MY LINKED IN PROFILE  -  https://www.linkedin.com/in/sam-sherwin-t-6146a7333/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BA9JQT%2BRKTEKXEqnUn1oR8g%3D%3D                
-MY EMAIL - samsherwin.t@gmail.com
+ -> MY LINKED IN PROFILE  -  https://www.linkedin.com/in/sam-sherwin-t-6146a7333/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BA9JQT%2BRKTEKXEqnUn1oR8g%3D%3D                
+ -> MY EMAIL - samsherwin.t@gmail.com
 
 ---
 
